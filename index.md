@@ -20,3 +20,4 @@
 - **Discord : [ǝɹıɔ#0001](https://discordapp.com/users/593666614717841419)**
 - **Blog : [My Blog](https://eric-wu.tk)**
 - **Github : [Github](https://github.com/Eric101201)**
+- **Email to eric@eric-wu.tk !**
